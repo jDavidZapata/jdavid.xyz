@@ -1,2 +1,2 @@
-# juandavidzapata.xyz
+# juandavidzapata.com
 Landing Site
