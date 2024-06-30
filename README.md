@@ -1,4 +1,4 @@
-# juandavidzapata.com
-www.juandavidzapata.com
+# jdavid.xyz
+www.jdavid.xyz
 
 Landing Site
