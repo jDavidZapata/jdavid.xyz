@@ -1,4 +1,4 @@
 # jdavid.xyz
-www.jdavid.xyz
+jdz.red
 
 Landing Site
